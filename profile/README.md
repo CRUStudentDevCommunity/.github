@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there!! 👋
 We are CRUSchoolProject group that make from student. We're studying in Chonradsadornumrung School. Chonburi, Thailand.
 
 ## Contribution
